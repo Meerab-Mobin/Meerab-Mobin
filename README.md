@@ -6,6 +6,6 @@ He is a bussiness man  runs a factory.
 In my leisure time i often reads novels ,watch F1 and football.
 I also know how to paint ,to bake something and how to drive.
 I have found to develop skills.
-now its time to disscuss things i am interested in 
-nowdays i am watching news alot especially when it's about wars that is happening around the world like ukraine and palestine 
-law is the degree that fascinate ma aalot
+Now its time to disscuss things i am interested in.
+Nowdays i am watching news alot especially when it's about wars that is happening around the world like ukraine and palestine. 
+Law is the degree that fascinate me alot
